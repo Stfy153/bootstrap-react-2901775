@@ -24,4 +24,4 @@ Wellness es tu espacio para aprender y explorar temas de salud sexual con confia
 ### Equipo
 - Danna
 - Stefany
-<a href="https://youtu.be/DcYLT37ImBY">@bob</a>
+<a href="https://youtu.be/DcYLT37ImBY"></a>
